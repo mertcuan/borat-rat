@@ -1,3 +1,7 @@
 # borat-rat
 borat rat cracked
-<img src="https://i.imgur.com/RGt4E9c.mp4">
+
+
+
+https://user-images.githubusercontent.com/85804481/193980767-78bff625-e09e-4a8e-93b8-a164238251ef.mp4
+
